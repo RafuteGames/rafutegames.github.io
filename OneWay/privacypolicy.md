@@ -1,4 +1,4 @@
-**Privacy Policy**
+**OneWay Privacy Policy**
 
 Rafute Games built the OneWay app as a Free app. This SERVICE is provided by Rafute Games at no cost and is intended for use as is.
 
